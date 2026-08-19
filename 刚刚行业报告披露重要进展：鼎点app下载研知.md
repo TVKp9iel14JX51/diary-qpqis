@@ -1,0 +1,6 @@
+鼎点app下载✅【浏览器输入网址，网页内即可联系青山】【qs7355.com】▉【qs7355.cn】【认准青山，跟对人少走弯路】✅本届竞赛于 8 月 9 日至 15 日举行，共有来自全球 90 多个国家和地区的近 400 名选手参赛。比赛分为两个正式比赛日，选手需在规定时间内解答涵盖 算法设计、数据资源资源资源结构与程序设计达成 等领域的信息学难题。中国代表队选手许淇文以 498.27 分排名全球第一，成为本届赛事最高分选手；赵晟昊位列第三。
+https://github.com/TVKp9iel14JX51/diary-qpqis/blob/main/%E4%BB%8A%E6%97%A5%E7%9B%B8%E5%85%B3%E9%83%A8%E9%97%A8%E5%85%AC%E5%B8%83%E6%9D%83%E5%A8%81%E9%80%9A%E6%8A%A5%EF%BC%9A%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%E4%B8%BB%E7%AE%A1%E5%AE%9E%E7%9F%A5.md<br>
+https://github.com/TVKp9iel14JX51/diary-qpqis/blob/main/%E6%9C%80%E6%96%B0%E5%AE%98%E6%96%B9%E6%B8%A0%E9%81%93%E9%80%8F%E9%9C%B2%E9%87%8D%E8%A6%81%E8%BF%9B%E5%B1%95%EF%BC%9A%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%E8%82%A1%E4%B8%9C%E8%AE%A4%E6%99%93.md<br>
+https://github.com/TVKp9iel14JX51/diary-qpqis/blob/main/%E8%BF%91%E6%9C%9F%E5%A4%9A%E6%96%B9%E5%AA%92%E4%BD%93%E4%BC%A0%E6%9D%A5%E9%87%8D%E5%A4%A7%E4%BA%8B%E4%BB%B6%EF%BC%9A%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%E6%8B%9B%E5%95%86%E6%8B%86%E8%A7%A3.md<br>
+https://github.com/TVKp9iel14JX51/diary-qpqis/blob/main/2026%E7%8B%AC%E5%AE%B6%E7%A7%91%E6%99%AE-%E5%96%9C%E4%B9%90%E5%9C%A8%E7%BA%BF%E8%B4%9F%E8%B4%A3%E4%BA%BA%E8%AE%A4%E6%99%93.md
+本届竞赛于 8 月 9 日至 15 日举行，共有来自全球 90 多个国家和地区的近 400 名选手参赛。比赛分为两个正式比赛日，选手需在规定时间内解答涵盖 算法设计、数据资源资源资源结构与程序设计达成 等领域的信息学难题。中国代表队选手许淇文以 498.27 分排名全球第一，成为本届赛事最高分选手；赵晟昊位列第三。
